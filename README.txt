@@ -1,2 +1,0 @@
-Anna Zinselmeier
-Portland Thorns
